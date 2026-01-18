@@ -1,7 +1,7 @@
 # Conduits of Order: The Human Vocation
 # 秩序管道：人的使命
 
-**“秩序管道”：对神意与人类使命的个人探究。**这只是一个私人记录，没有传道和说服他人的意图，单纯是为了说服自己。
+**"秩序管道"：对神意与人类使命的个人探究.** 这只是一个私人记录，没有传道和说服他人的意图，单纯是为了说服自己。
 
 **"Conduits of Order": A Personal Inquiry into Divine Providence and Human Vocation.** This is strictly a private record, written with no intent to proselytize or persuade others, but solely as a means of persuading myself.
 
