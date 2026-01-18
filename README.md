@@ -2,6 +2,7 @@
 # 秩序管道：人的使命
 
 **“秩序管道”：对神意与人类使命的个人探究。**这只是一个私人记录，没有传道和说服他人的意图，单纯是为了说服自己。
+
 **"Conduits of Order": A Personal Inquiry into Divine Providence and Human Vocation.** This is strictly a private record, written with no intent to proselytize or persuade others, but solely as a means of persuading myself.
 
 这本书是我自己思想的记录，它的目的是使得我对圣经的理解能自洽于我本人的生活、教育、认知和人生路径，使我面对各种自然解释或神学解释时，能找到自己的位置而不至于迷失。我试图在物理世界的“秩序”（热力学第二定律意义上的）和信息熵（量子信息论）与神意之间，搭建一座桥梁，因为我确信如果完全在中世纪教父们的指引下，我确实遇到了难以逾越的心理障碍。感谢主，他赐予我们思考的能力和自由意志，使我们能时时更新，并向着主耶稣基督的标杆直跑，虽然我们永远不可能达到，但在基督的永恒里，这一切都有了意义。
